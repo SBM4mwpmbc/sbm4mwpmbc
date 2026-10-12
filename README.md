@@ -1,16 +1,17 @@
-## Hi there 👋
+## hi blud
 
-<!--
-**SBM4mwpmbc/sbm4mwpmbc** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+im a stoopid lil coder, that also happens to be a filmmaker
 
-Here are some ideas to get you started:
+you can see videeo hea petahejwds,gjs9nf dhjtigf[youtube](https://www.youtube.com/@MWPMBC)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+## a
+
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?size=35&lines=i+farded+hehehehehe)](https://git.io/typing-svg)
+
+i like coding in C++ and fardgramming
+
+im also morduh dwone fan :3 lol
+
+i might be a serial designation J and jcjenson glaze--
+
+## bye now
