@@ -15,10 +15,19 @@ you can see videeo hea petahejwds,gjs9nf dhjtigf **[youtube](https://www.youtube
 
 ## bit more bout me
 
-languages i like: C++, Fardgramming-
+languages i like: C++, Fardgramming-.
 what i use: VS code, bussin griddycode, Git, linux, windows, github, roblox studio
 
-im also morduh dwone fan :3 lol
+im also a murder drone and fpe fan
+
+Founder & CEO of Fard Inc. Also the CEO of MWP & MBC (soon to be claimed by Fard Inc.)
+Fard Inc specializes in Tech, such as:
+1. FardTV (Android open source TV service)
+2. FardGX 1080 (PC)
+3. WDSYS
+4. FardEngine (Graphics API based on vulkan and opengl)
+5. FardEngine Workshop (Game engine store)
+And much more.
 
 i might be a serial designation J and jcjenson glaze--
 
