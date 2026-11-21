@@ -4,8 +4,6 @@
 
 im a stoopid lil coder, that also happens to be a filmmaker
 
-you can see videeo hea petahejwds,gjs9nf dhjtigf **[youtube](https://www.youtube.com/@MWPMBC)**
-
 ## a 🤑🗣️🔥😎🥶
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?size=35&lines=i+farded+hehehehehe)](https://git.io/typing-svg)
@@ -20,13 +18,14 @@ what i use: VS code, bussin griddycode, Git, linux, windows, github, roblox stud
 
 im also a murder drone and fpe fan
 
-Founder & CEO of Fard Inc. Also the CEO of MWP & MBC (soon to be claimed by Fard Inc.)
+Founder & CEO of Fard Inc.
 Fard Inc specializes in Tech, such as:
 1. FardTV (Android open source TV service)
 2. FardGX 1080 (PC)
 3. WDSYS
 4. FardEngine (Graphics API based on vulkan and opengl)
 5. FardEngine Workshop (Game engine store)
+6. Film-making
 And much more.
 
 i might be a serial designation J and jcjenson glaze--
